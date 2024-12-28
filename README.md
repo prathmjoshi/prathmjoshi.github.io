@@ -1,1 +1,0 @@
-# prathmjoshi.github.io
